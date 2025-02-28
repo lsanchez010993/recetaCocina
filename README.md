@@ -10,15 +10,17 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 |--------------|----------|-------------|--------------|
 | 4 comensales | 45 min   | Acompañamiento | Muy baja |
 
-### Características adicionales
-**Coste barato, En sartén**
+| Características adicionales |
+|----------------------------|
+| **Coste barato, En sartén** |
 
-### Ingredientes
-- [ ] 400 gramos de frutillas
-- [ ] 100 gramos de azúcar (½ taza)
-- [ ] 1 limón
+| Ingredientes |
+|-------------|
+| - [ ] 400 gramos de frutillas <br> - [ ] 100 gramos de azúcar (½ taza) <br> - [ ] 1 limón |
 
-[Ver información nutricional](#)
+| [Ver información nutricional](#) |
+|----------------------------|
+
 
 
 ## Preparación
