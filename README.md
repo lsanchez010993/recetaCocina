@@ -21,27 +21,27 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 
 1. **Lavar las frutillas:** Lava bien las frutillas. Puedes agregar un poco de vinagre de alcohol al agua y, luego, enjuagar con más agua.
 
-   ![Paso 1](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 1](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_0_600.webp)
 
 2. **Preparar las frutillas:** Retira los cabitos y córtalas en mitades o cuartos si son muy grandes; las pequeñas déjalas enteras.
 
-   ![Paso 2](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 2](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_1_600.webp)
 
 3. **Mezclar con azúcar y limón:** En una olla grande, agrega las frutillas junto con el azúcar y el jugo de limón.
 
-   ![Paso 3](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 3](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_2_600.webp)
 
 4. **Cocinar la mezcla:** Mezcla bien los ingredientes.
 
-   ![Paso 4](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 4](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_3_600.webp)
 
 5. **Iniciar la cocción:** Lleva la olla a fuego medio, tapa y remueve ocasionalmente.
 
-   ![Paso 5](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 5](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_4_600.webp)
 
 6. **Continuar cocinando:** Cuando empiece a hervir, retira la tapa, baja el fuego y deja cocinar por unos 30-45 minutos, removiendo de vez en cuando para evitar que se pegue.
 
-   ![Paso 6](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 6](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_5_600.webp)
 
 7. **Verificar la consistencia:** Para saber si está lista, pasa la cuchara por el medio y, si tarda unos segundos en unirse, estará en su punto. También puedes probar colocando una cucharadita en un plato frío y pasar el dedo por el centro; si la mermelada no se junta de inmediato, ya tiene la textura adecuada.
 
