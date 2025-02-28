@@ -45,15 +45,15 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 
 7. **Verificar la consistencia:** Para saber si está lista, pasa la cuchara por el medio y, si tarda unos segundos en unirse, estará en su punto. También puedes probar colocando una cucharadita en un plato frío y pasar el dedo por el centro; si la mermelada no se junta de inmediato, ya tiene la textura adecuada.
 
-   ![Paso 7](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 7](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_6_600.webp)
 
 8. **Envasar la mermelada:** Vierte la mermelada caliente en frascos esterilizados, ciérralos bien y colócalos boca abajo hasta que se enfríen. Esto ayudará a crear vacío y conservar la mermelada por más tiempo.
 
-   ![Paso 8](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 8](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_7_600.webp)
 
 9. **Disfrutar:** ¡Disfruta de tu mermelada de frutillas casera en desayunos, postres y más! Esta receta es muy fácil de preparar y queda deliciosa.
 
-   ![Paso 9](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+   ![Paso 9](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_8_600.webp)
 
 ## Consejos adicionales
 
