@@ -2,7 +2,7 @@
 
 *Receta por Vanessa Bermudez, Cocinera. Publicada el 27 de febrero de 2025.*
 
-![Mermelada de Frutillas](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html)
+![Mermelada de Frutillas](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_600.webp)
 
 Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas te fascinará. Es una opción deliciosa para acompañar tostadas, panqueques o rellenar pasteles. Además, al hacerla en casa, puedes controlar la cantidad de azúcar y asegurarte de que sea 100% natural.
 
