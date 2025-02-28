@@ -18,7 +18,7 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 |-------------|
 | - [ ] 400 gramos de frutillas <br> - [ ] 100 gramos de azúcar (½ taza) <br> - [ ] 1 limón |
 
-| [Ver información nutricional](#informacion-nutricional) |
+| [Ver información nutricional](#información-nutricional-por-porción) |
 
 |----------------------------|
 
@@ -70,7 +70,7 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 
 - **Conservación prolongada:** Si deseas conservar la mermelada por más tiempo, realiza un proceso de envasado al vacío hirviendo los frascos cerrados en agua durante 10 minutos.
 
-## Información nutricional (por porción)
+## Información nutricional por porción
 
 - **Calorías:** 145 kcal
 - **Proteínas:** 0,8 g
