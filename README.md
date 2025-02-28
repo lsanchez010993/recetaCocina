@@ -18,7 +18,8 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 |-------------|
 | - [ ] 400 gramos de frutillas <br> - [ ] 100 gramos de azúcar (½ taza) <br> - [ ] 1 limón |
 
-| [Ver información nutricional](#) |
+| [Ver información nutricional](#informacion-nutricional) |
+
 |----------------------------|
 
 
