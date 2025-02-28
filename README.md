@@ -26,7 +26,8 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 
 ## Preparación
 
-1. **Lavar las frutillas:** Lava bien las frutillas. Puedes agregar un poco de vinagre de alcohol al agua y, luego, enjuagar con más agua.
+
+1. **<u>Lavar las frutillas:</u>** Lava bien las frutillas. Puedes agregar un poco de vinagre de alcohol al agua y, luego, enjuagar con más agua.
 
    ![Paso 1](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_0_600.webp)
 
@@ -78,9 +79,5 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 - **Carbohidratos:** 37 g
 - **Fibra:** 2,5 g
 
-Para más detalles y recetas adicionales, visita la [receta original](https://www.recetasgratis.net/receta-de-mermelada-de-frutillas-77959.html).
 
----
-
-*Nota: Las imágenes y la receta original son propiedad de [RecetasGratis](https://www.recetasgratis.net/).*
 
