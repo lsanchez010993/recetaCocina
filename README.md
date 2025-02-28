@@ -6,16 +6,20 @@
 
 Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas te fascinará. Es una opción deliciosa para acompañar tostadas, panqueques o rellenar pasteles. Además, al hacerla en casa, puedes controlar la cantidad de azúcar y asegurarte de que sea 100% natural.
 
-**Tiempo de preparación:** 45 minutos  
-**Porciones:** 4 comensales  
-**Dificultad:** Muy baja  
-**Características adicionales:** Coste barato, en sartén
+| 👥 Comensales | ⏱ Tiempo | 🍽 Categoría | 📊 Dificultad |
+|--------------|----------|-------------|--------------|
+| 4 comensales | 45 min   | Acompañamiento | Muy baja |
 
-## Ingredientes
+### Características adicionales
+**Coste barato, En sartén**
 
-- 400 gramos de frutillas
-- 100 gramos de azúcar (½ taza)
-- 1 limón
+### Ingredientes
+- [ ] 400 gramos de frutillas
+- [ ] 100 gramos de azúcar (½ taza)
+- [ ] 1 limón
+
+[Ver información nutricional](#)
+
 
 ## Preparación
 
