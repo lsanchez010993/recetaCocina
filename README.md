@@ -27,7 +27,7 @@ Si te encantan las preparaciones caseras, esta receta de mermelada de frutillas 
 ## Preparación
 
 
-1. **<u>Lavar las frutillas:</u>** Lava bien las frutillas. Puedes agregar un poco de vinagre de alcohol al agua y, luego, enjuagar con más agua.
+1. **Lavar las frutillas:** Lava bien las frutillas. Puedes agregar un poco de vinagre de alcohol al agua y, luego, enjuagar con más agua.
 
    ![Paso 1](https://cdn0.recetasgratis.net/es/posts/9/5/9/mermelada_de_frutillas_77959_paso_0_600.webp)
 
